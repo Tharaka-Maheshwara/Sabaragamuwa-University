@@ -1,1 +1,2 @@
-# Sabaragamuwa-University
+Sabaragamuwa University of Sri Lanka is a prominent public university located in Belihuloya, Sri Lanka. It was established in 1991 and is known for its focus on agricultural and environmental sciences, as well as its programs in social sciences, management studies, and natural sciences. The university campus is situated amidst scenic surroundings, offering a conducive environment for learning and research. Sabaragamuwa University is committed to academic excellence, research innovation, and contributing to the socioeconomic development of Sri Lanka.
+http://www.sab.ac.lk
